@@ -1,5 +1,5 @@
 # This is just an experiment
-## I will try to post a picture every day
+## I will try to post a picture every day during a year
 ### very small subtle changes
 
 ### Mon 2022.06.06
