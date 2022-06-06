@@ -1,6 +1,5 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
-### very small subtle changes
 
 ### Mon 2022.06.06
 ![Alb](https://lh3.googleusercontent.com/obxWt07rp6ZGw-Zz93iHLEZ_TeEDQxpfJIaq-rTTGqbqjfsp6MZjkOB_fUyIZOI6iJczI1EPTLcAwEXDVYUem9InXOG9qTUTgqSta3LTf-P4240GSfc2pyPzB-ExMOuLTTQefELg6iI=w2400)*Alb*&nbsp;
