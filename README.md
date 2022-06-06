@@ -2,6 +2,9 @@
 ## I will try to post a picture every day
 ### very small subtle changes
 
+### Mon 2022.06.06
+![Alb](https://lh3.googleusercontent.com/obxWt07rp6ZGw-Zz93iHLEZ_TeEDQxpfJIaq-rTTGqbqjfsp6MZjkOB_fUyIZOI6iJczI1EPTLcAwEXDVYUem9InXOG9qTUTgqSta3LTf-P4240GSfc2pyPzB-ExMOuLTTQefELg6iI=w2400)*Alb*&nbsp;
+
 ### Sun 2022.06.05
 ![Vatertagsgeschenk](https://lh3.googleusercontent.com/bYdZJJ67caQT-Fu49svObh-nW6QKxu_GrECg4sfVHmZ0_lNuheUUGV4XjWAy2Kish-9ZxQElnZ5b6VWuxX33aP-nUS9K0bi50UfOgvgQr0ejM_AhX_diVdcOw92Hq-jJ33U39yImTsE=w2400)*Vatertagsgeschenk*&nbsp;
 
