@@ -1,6 +1,10 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+
+### Tue 2022.06.07
+![Self-made](https://lh3.googleusercontent.com/pPBiALpSevBVGlLl5Noujlktf5b9teuMdOKx1ll5jB-jOaeDXq49PCAc_HSJZpoJ51MF5h3hsWaFioNpve5U2N2c8yID-asbggiuwEmI_1Scd-4UR19BRQ1uoysjIrqfwH9DGV3WTaU=w2400)*Self-made*&nbsp;
+
 ### Mon 2022.06.06
 ![Alb](https://lh3.googleusercontent.com/obxWt07rp6ZGw-Zz93iHLEZ_TeEDQxpfJIaq-rTTGqbqjfsp6MZjkOB_fUyIZOI6iJczI1EPTLcAwEXDVYUem9InXOG9qTUTgqSta3LTf-P4240GSfc2pyPzB-ExMOuLTTQefELg6iI=w2400)*Alb*&nbsp;
 
