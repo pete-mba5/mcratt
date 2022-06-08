@@ -2,6 +2,9 @@
 ## I will try to post a picture every day during a year
 
 
+### Wed 2022.06.08
+![ICe](https://lh3.googleusercontent.com/7QPKJjmAwIzP0QqAMe88WNtwbrsHA37MAymBmI01DJtuZEEIq8n8LV_msBJ7374MdtSLoWwrbv3dczIekEZKzWrmgbZ3QPgvylaPeLolOGTN2UfS5QQ33cWfD2WZB7EOd9xl49-B2VQ=w2400)*Ice*&nbsp;
+
 ### Tue 2022.06.07
 ![Self-made](https://lh3.googleusercontent.com/pPBiALpSevBVGlLl5Noujlktf5b9teuMdOKx1ll5jB-jOaeDXq49PCAc_HSJZpoJ51MF5h3hsWaFioNpve5U2N2c8yID-asbggiuwEmI_1Scd-4UR19BRQ1uoysjIrqfwH9DGV3WTaU=w2400)*Self-made*&nbsp;
 
