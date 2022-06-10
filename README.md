@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Fri 2022.06.10
+![Guacamole](https://lh3.googleusercontent.com/coWSUA2pse3Byndu9ZI-rmUPdBKWyHm1I3o2SiyQyWFFUX2lIoHt-ep-5CgYHyfrHax9kYmQjZix5tJqbIMtR0yUwqdaOm08bsvr9Amuy5GhJWuia7z3WJKZOfu8A1nmPuVP_GJUd8I=w2400)*Guacamole*&nbsp;
+
 ### Thu 2022.06.09
 ![Plant](https://lh3.googleusercontent.com/p_Nn7uWV0DeywvOSkT0eU2vr4dnaQ67oznNUGIR0XHRPzRhbATA3nj4ZLZB0J8c9F1OM6PUYSaqBffyFBvl0CtlbwuzSdC1MPGYql1UGRmVuvU1xAR6yV7j1dRhCgU8Oh-8A-yDGaL8=w2400)*Plant*&nbsp;
 
