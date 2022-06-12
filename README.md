@@ -1,6 +1,10 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+
+### Sun 2022.06.12
+![Electricity](https://lh3.googleusercontent.com/Q2V3KbMPyVR3wGx94Lnyy0io6v2otweRhX1E7mcgXbTW9v2tN0RB2PyOp0NCD-t2O0LQUIyPkd4owuf2SS8jpuKO997pAU03lNmq3xE7iJGoe3NZjWT36msVz2mH58a6h4mnSXSz-3E=w2400)*Electricity*&nbsp;
+
 ### Sat 2022.06.11
 ![Edelweiss](https://lh3.googleusercontent.com/vM5tFsMOwYWNeUM2F9R74kdQsuHeGl0JW8ffDYPTUNngUz1z0UaSxRAgkCJrl0nlYxA0Rt8pRcGjn5nsTCTuFl75_JQKnKJNbEVfxdlR_o4SfRsg59fCoKGqAPyqmHmngfNQSwSH_FM=w2400)*Edelweiss*&nbsp;
 
