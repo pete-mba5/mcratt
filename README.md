@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Mon 2022.06.13
+![Sky](https://lh3.googleusercontent.com/Yu8ePj0MGS8VuTVsS5nUjm426Sf41aM1ZgUf7WCUxV-l6qVgWCCOYvm0tQA_6u2rbG0cUU2T16ZypoaHLMXt-bDA03uqP8do3-wIQs1sR2VYgVo3-OfofIjT9QFNezXL1LMidH8jNu0=w2400)*Sky*&nbsp;
+
 
 ### Sun 2022.06.12
 ![Electricity](https://lh3.googleusercontent.com/Q2V3KbMPyVR3wGx94Lnyy0io6v2otweRhX1E7mcgXbTW9v2tN0RB2PyOp0NCD-t2O0LQUIyPkd4owuf2SS8jpuKO997pAU03lNmq3xE7iJGoe3NZjWT36msVz2mH58a6h4mnSXSz-3E=w2400)*Electricity*&nbsp;
