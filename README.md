@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Tue 2022.06.14
+![Durlach](https://lh3.googleusercontent.com/khlAEzb3Q2DDcOoz89m80aBLmXR4_qQU4WLlvGFmtHtAL6RhdPl8TACajGgazEglPAeXrhwLyzYxy77Jzg4U2UN-ofECsHXD5IJjzwskZEPOFd2e71SgZvXxKgKAY1hF9uYqCVO-Y8A=w2400)*Durlach*&nbsp;
+
 ### Mon 2022.06.13
 ![Sky](https://lh3.googleusercontent.com/Yu8ePj0MGS8VuTVsS5nUjm426Sf41aM1ZgUf7WCUxV-l6qVgWCCOYvm0tQA_6u2rbG0cUU2T16ZypoaHLMXt-bDA03uqP8do3-wIQs1sR2VYgVo3-OfofIjT9QFNezXL1LMidH8jNu0=w2400)*Sky*&nbsp;
 
