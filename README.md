@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Wed 2022.06.15
+![Blueberry](https://lh3.googleusercontent.com/1URJssh8iJn84URFtrMeBsGSOXLPGJDTjBaiIRLxxbhg-Suej3cr5NL_vO2ZABxnfgP4M0gPgKKzorylUkSNHlVqkZ4pXVKjJ0mb4XGo_yT7Xb0kI_tqL_Bufm8Y-C5pqI9NeGn8JQ0=w2400)*Blueberry*&nbsp;
+
 ### Tue 2022.06.14
 ![Durlach](https://lh3.googleusercontent.com/khlAEzb3Q2DDcOoz89m80aBLmXR4_qQU4WLlvGFmtHtAL6RhdPl8TACajGgazEglPAeXrhwLyzYxy77Jzg4U2UN-ofECsHXD5IJjzwskZEPOFd2e71SgZvXxKgKAY1hF9uYqCVO-Y8A=w2400)*Durlach*&nbsp;
 
