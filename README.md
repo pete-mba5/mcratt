@@ -1,7 +1,8 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
-### Thu 2022.06.16
+
+### Thu 2022.06.16
 ![Hot](https://lh3.googleusercontent.com/kC6PvWE-UAOxqkRaU0iseXjRXKKtK7nsfb0E_gUU7vJGIS3O_jurXPPeepB9VTVIixhj-3YI4zHYDjesUT51JK32amg7QK7MR8j3F3cFOuyMvcr8m485Pkh4Bc4zbdyafd0btICv7fQ=w2400)*Hot*&nbsp;
 
 ### Wed 2022.06.15
