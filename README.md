@@ -2,6 +2,9 @@
 ## I will try to post a picture every day during a year
 
 
+### Fri 2022.06.17
+![Bent](https://lh3.googleusercontent.com/kuiAabGAAA-hR7HU5RZv1JB1HYIzkx_5FuPa_9lDYegHSjnLHeXH8MSS3U-wqPGnkK7MzBrwF0vgpxG05x9x1y3xq8QmkksyJmD6aiJikwg0tdZWsp2KDiF95ccah0O36cJEvM1Y7ZY=w2400)*Bent*&nbsp;
+
 ### Thu 2022.06.16
 ![Hot](https://lh3.googleusercontent.com/kC6PvWE-UAOxqkRaU0iseXjRXKKtK7nsfb0E_gUU7vJGIS3O_jurXPPeepB9VTVIixhj-3YI4zHYDjesUT51JK32amg7QK7MR8j3F3cFOuyMvcr8m485Pkh4Bc4zbdyafd0btICv7fQ=w2400)*Hot*&nbsp;
 
