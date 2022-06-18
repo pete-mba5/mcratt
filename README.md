@@ -2,6 +2,9 @@
 ## I will try to post a picture every day during a year
 
 
+### Sat 2022.06.18
+![Kid's gift](https://lh3.googleusercontent.com/Cp3Oj5NOxZYywuqI2rqCXNEIsDlcemos3LHsrDjkNiELnA2YZoxfr9Bemjbxmtovh7WVTL0QE8kMG44hMfNruEytSgM9MXU5ucpSAVaE4BT_8EB0ulqr6yqaXRr9tcH4NLOcRgbV_bw=w2400)*Kid's Gift*&nbsp;
+
 ### Fri 2022.06.17
 ![Bent](https://lh3.googleusercontent.com/kuiAabGAAA-hR7HU5RZv1JB1HYIzkx_5FuPa_9lDYegHSjnLHeXH8MSS3U-wqPGnkK7MzBrwF0vgpxG05x9x1y3xq8QmkksyJmD6aiJikwg0tdZWsp2KDiF95ccah0O36cJEvM1Y7ZY=w2400)*Bent*&nbsp;
 
