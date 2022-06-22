@@ -2,6 +2,9 @@
 ## I will try to post a picture every day during a year
 
 
+### Wed 2022.06.22
+![Snail](https://lh3.googleusercontent.com/MRS_faPJIx5flTzjV3Gaow1csS7QgG4arTMRhm0byyekwZ41eRgYDBHDEk6DM2GsptZDVN3t7iLu5dYmOU6ybRqd2e6WAPAJDgH7nCQ-Ht-N8MHeSrfWjgdAO6dZ8iX0zMCoPEzB4-w=w2400)*Snail*&nbsp;
+
 ### Tue 2022.06.21
 ![Basket](https://lh3.googleusercontent.com/HxwKriPPpPeCfdqGskcbqxpBkvA_EpFad9hVGBLCfouZ5JI4I5KpRamqR6LuXkiyzpcX_LpanlF91NjTyYuOpdo2gFRWWmOsiWYfJ1knmOGy7ag2qyqbVDUfbvOauGksrbtSsrg7ut4=w2400)*Basket Shutter 1/6*&nbsp;
 
