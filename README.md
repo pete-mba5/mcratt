@@ -2,6 +2,9 @@
 ## I will try to post a picture every day during a year
 
 
+### Thu 2022.06.23
+![Master](https://lh3.googleusercontent.com/0YT0gMGG-nuzrIMtDWE9HnMvA3SzoqjV6OdKfblVApzfjBgipIvxIY3vqTeEA-T2LBbzAtGDsI1v1pR5r9Yj6sxgCQO7r9uNMAY28POCebdyqbnE40wfja_5DRumjJLjVYl0YTDEaTI=w2400)*Master*&nbsp;
+
 ### Wed 2022.06.22
 ![Snail](https://lh3.googleusercontent.com/MRS_faPJIx5flTzjV3Gaow1csS7QgG4arTMRhm0byyekwZ41eRgYDBHDEk6DM2GsptZDVN3t7iLu5dYmOU6ybRqd2e6WAPAJDgH7nCQ-Ht-N8MHeSrfWjgdAO6dZ8iX0zMCoPEzB4-w=w2400)*Snail*&nbsp;
 
