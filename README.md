@@ -2,6 +2,9 @@
 ## I will try to post a picture every day during a year
 
 
+###Fri 2022.06.24
+![Rainbow](https://lh3.googleusercontent.com/0YT0gMGG-nuzrIMtDWE9HnMvA3SzoqjV6OdKfblVApzfjBgipIvxIY3vqTeEA-T2LBbzAtGDsI1v1pR5r9Yj6sxgCQO7r9uNMAY28POCebdyqbnE40wfja_5DRumjJLjVYl0YTDEaTI=w2400)*Rainbow*&nbsp;
+
 ### Thu 2022.06.23
 ![Master](https://lh3.googleusercontent.com/0YT0gMGG-nuzrIMtDWE9HnMvA3SzoqjV6OdKfblVApzfjBgipIvxIY3vqTeEA-T2LBbzAtGDsI1v1pR5r9Yj6sxgCQO7r9uNMAY28POCebdyqbnE40wfja_5DRumjJLjVYl0YTDEaTI=w2400)*Master*&nbsp;
 
