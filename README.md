@@ -1,6 +1,13 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Mon 2022.06.27
+![U.BASS](https://lh3.googleusercontent.com/4xa1AVAQRRr5q5iIUhi85fIJYe4Y4qi5r9Z1rRo32GHD4p5Chm_brg8yOBvWLJLZJN4xJb4TjRi2_rv0tOkAITyY40VcBGo09m977DnzL_XSbVWi-LSEgq2Gc_g2bL8FPgMTsXAvfx0=w2400)*u.BASS*&nbsp;
+
+
+### Sun 2022.06.26
+![if the kids are united](https://lh3.googleusercontent.com/TPRcybY7vpmZdb5G1WtkSNviSfhUfN1eLgCcAE41kECO2Td87L9eHEG1SVXoaO5XrMWpzIkCqJ2d7ekepV8skqQ6qxyg7dOnK-3qlyauDMDAtstJNbjuestSePRKv_wWUUHV7KbFGXc=w2400)*If the kids are united*&nbsp;
+
 ### Sat 2022.06.25
 ![48vs11](https://lh3.googleusercontent.com/_AyKVgGHcLp5-DBM_ip6BaAxNt2qvFng4d9hWYRr09OA8bjf9xhvkdZuxw30KfeQm7v0LAWA9a523cA9W-0z-pWuA6Ne9JTbd-NGezzzwIjBKaICBJpa0mjoNfszVTW61Q9YE7egh90=w2400)*48vs11*&nbsp;
 
