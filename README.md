@@ -6,7 +6,7 @@
 ![Autobahn](https://lh3.googleusercontent.com/A_8F3o__AzjqlHPiMl4SJZhO3F5kZtebpvDyCo4NkFjTrwQ841Pfl8OVizkrhJmUC7ipo8xlEvsEe_6GD7V1VhH4G889anQlM0LdP2QKQc72Gnqu3kTN1Db_G9ANAqQ5l-p6q0rvXIM=w2400)*Autobahn*&nbsp;
 
 ### Thu 2022.06.30
-![Gitter.Dawn]()*Gitter Dawn*&nbsp;
+![Gitter.Dawn](https://lh3.googleusercontent.com/zcZmLjfnf6NosigKKSW7J1qP99uuIGJSuY3yLpHdD78iKPchH2yMoCJW6HlR8CXNoOCqPLkGQId8bu38-LedRmGfpc2P0-lHh5ZkC_f_xss-v2Mt-YPpf_Ps_CUFj0wS93GyDFSweZg=w2400)*Gitter Dawn*&nbsp;
 
 ### Wed 2022.06.29
 ![Sun.Tree.Light.Effect]()*Sun Tree Light Effect*&nbsp;
