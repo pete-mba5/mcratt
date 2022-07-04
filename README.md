@@ -1,6 +1,10 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+
+### Mon 2022.07.04
+![Ginkgo](https://lh3.googleusercontent.com/FLdWthWV4toWbY3A8n9zpfmKOAxyqEzbKKajuW6KF8OZ5XhmCFNw23ytKzI16lYPXURhN3YGAfQirfI5xqfRTrlgBEygVOCiH2dddin9_Rqii96ldlzNWRzRv5FzsVa8-tmF4ML-2Pc=w2400)*Ginkgo*&nbsp;
+
 ### Sun 2022.07.03
 ![Dead.Beauty](https://lh3.googleusercontent.com/jBwr-8tVYEizSorFCJSB36ozFr3cKN7pr_wETAyw3GfIIkm7ZpjcHAcx45ERT85c4y7UJ8-nWl_8remngyn0JNk0TYT1MdnVigB-3EdDam2rpn9RgatAHN3osZW411sypOguERwbq1A=w2400)*Dead Beauty*&nbsp;
 
