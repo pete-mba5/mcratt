@@ -1,6 +1,8 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Sat 2022.07.09
+![Kitchen View](https://lh3.googleusercontent.com/wz2ONU8nKGaG0XmcqmYtBC72C1-fsOQLgVxgioGUVAVoazZoSgFybLxcNhV78fhlYTpVHLxlPhruwWXvSmemNNXz_DmqyuVKoCBImOjdGt0_JZkdP_zjwbRxwGyaYaRdPOBAqd07vxA=w2400)*Kitchen View*&nbsp;
 
 ### Fri 2022.07.08
 ![Parking Nest](https://lh3.googleusercontent.com/H4PDNhuhOv3GwgUnH_Q8c4coBhfyRnSnLoRBVtBUPTR_ZEwNoN5RMdDZmM1UbYbsVZ79-CqAxbuGmah6HClH1B7SG_x3IPWXuM0lgbr3y-JjVPjjLN8j0HjxsUxTIQNzr_zfiFp1AF8=w2400)*Parking Nest*&nbsp;
