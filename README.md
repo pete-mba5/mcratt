@@ -7,6 +7,9 @@
 ### Fri 2022.07.08
 ![Parking Nest](https://lh3.googleusercontent.com/H4PDNhuhOv3GwgUnH_Q8c4coBhfyRnSnLoRBVtBUPTR_ZEwNoN5RMdDZmM1UbYbsVZ79-CqAxbuGmah6HClH1B7SG_x3IPWXuM0lgbr3y-JjVPjjLN8j0HjxsUxTIQNzr_zfiFp1AF8=w2400)*Parking Nest*&nbsp;
 
+### Thu 2022.07.07
+![Firefighter Berry](https://lh3.googleusercontent.com/FpbdZMoCajTjcetIqSNu-GsOKOxAdCOqzyxXbB2VLLRnkZEu-CZSyQYWMKSQ8Z9Vj7zHi61ybBOaqzykzYq1IYBoyf2yfTjE1BJ5YchqzgdVYaFjAYyEs-yhCR0n-Uf_qxVWs4xPP6k=w2400)*Firefighter Berry*&nbsp;
+
 ### Mon 2022.07.04
 ![Ginkgo](https://lh3.googleusercontent.com/FLdWthWV4toWbY3A8n9zpfmKOAxyqEzbKKajuW6KF8OZ5XhmCFNw23ytKzI16lYPXURhN3YGAfQirfI5xqfRTrlgBEygVOCiH2dddin9_Rqii96ldlzNWRzRv5FzsVa8-tmF4ML-2Pc=w2400)*Ginkgo*&nbsp;
 
