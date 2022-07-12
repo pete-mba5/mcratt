@@ -13,6 +13,9 @@
 ### Wed 2022.07.06
 ![White Hole Sun](https://lh3.googleusercontent.com/CNYZ1oU62kblmI_LfGl3yMyRqgx-YsXJIuvKEc_qIgEpm2bRUHKNVKcGL651ZD6itqCRO5FJ3Fy78kCeAKc0EnNBHjVm-xRsAfXwz8VHHhAXdcG81f9k3YS-uGflWrDKNVIkvu66m0E=w2400)*White Hole Sun*&nbsp;
 
+### Tue 2022.07.05
+![Tram](https://lh3.googleusercontent.com/BX6fl2eTLdwYTUhHjMrpBFpj1JcJ7DRNv8rNIuOFz-ZbvRBk9ExqgcBCgJDyTY3vZ2OGTozLb0MY3urHLfAp21Hdy0RdpLs1q96m1wMD2ARL-_8lBGdu8yXEeRRkDpbzzgIW7ZlkAVQ=w2400)*Tram*&nbsp;
+
 ### Mon 2022.07.04
 ![Ginkgo](https://lh3.googleusercontent.com/FLdWthWV4toWbY3A8n9zpfmKOAxyqEzbKKajuW6KF8OZ5XhmCFNw23ytKzI16lYPXURhN3YGAfQirfI5xqfRTrlgBEygVOCiH2dddin9_Rqii96ldlzNWRzRv5FzsVa8-tmF4ML-2Pc=w2400)*Ginkgo*&nbsp;
 
