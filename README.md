@@ -10,6 +10,9 @@
 ### Thu 2022.07.07
 ![Firefighter Berry](https://lh3.googleusercontent.com/FpbdZMoCajTjcetIqSNu-GsOKOxAdCOqzyxXbB2VLLRnkZEu-CZSyQYWMKSQ8Z9Vj7zHi61ybBOaqzykzYq1IYBoyf2yfTjE1BJ5YchqzgdVYaFjAYyEs-yhCR0n-Uf_qxVWs4xPP6k=w2400)*Firefighter Berry*&nbsp;
 
+### Wed 2022.07.06
+![White Hole Sun](https://lh3.googleusercontent.com/CNYZ1oU62kblmI_LfGl3yMyRqgx-YsXJIuvKEc_qIgEpm2bRUHKNVKcGL651ZD6itqCRO5FJ3Fy78kCeAKc0EnNBHjVm-xRsAfXwz8VHHhAXdcG81f9k3YS-uGflWrDKNVIkvu66m0E=w2400)*White Hole Sun*&nbsp;
+
 ### Mon 2022.07.04
 ![Ginkgo](https://lh3.googleusercontent.com/FLdWthWV4toWbY3A8n9zpfmKOAxyqEzbKKajuW6KF8OZ5XhmCFNw23ytKzI16lYPXURhN3YGAfQirfI5xqfRTrlgBEygVOCiH2dddin9_Rqii96ldlzNWRzRv5FzsVa8-tmF4ML-2Pc=w2400)*Ginkgo*&nbsp;
 
