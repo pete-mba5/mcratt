@@ -1,6 +1,8 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Wed 2022.07.13
+![North Star](https://lh3.googleusercontent.com/Zf_j2Dq95mLDBlR6AQMCtXUU4htDlEOYc1FXJv0LzvsR4NxGZWI68-IpFEk5IMTOu6Sl-7BkRW5ce97Tl_CNsI4c3H1ddxW8sDbrWI_iLAKbXvQmKD8hME6GJ4GfKtqMTlr8O_BFVdI=w2400)*North Star*&nbsp;
 
 ### Tue 2022.07.12
 ![Tornado](https://lh3.googleusercontent.com/v26OZTfzdUO658TZrWQLV4f9Z96voEOdpsSYiE7BWTAEsh5hVZh804GH8s7tnGe6BDJ8a7N5-bheKx13ylfZfxhkZs4w5bU7h4vl600rFBPZOz4Wi620nEZsSsaGmavtQlRDAU_dZtA=w2400)*Tornado*&nbsp;
