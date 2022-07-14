@@ -1,6 +1,8 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Thu 2022.07.14
+![Fennel Sunset](https://lh3.googleusercontent.com/ZTF8iW9RuEb1SuaevDmtYPhm5NaTV36HWlteGu3l5VrzJzF2CmlBhTclK1HfO8G_uYZcXN0FrUXA8hzhYvTby52jmDaBRkSTH6QW5gWnl1SkcIYyPLXcnzXNfkqjKBq4AQBcFLZz2H4=w2400)*Fennel Sunset*&nbsp;
 ### Wed 2022.07.13
 ![North Star](https://lh3.googleusercontent.com/Zf_j2Dq95mLDBlR6AQMCtXUU4htDlEOYc1FXJv0LzvsR4NxGZWI68-IpFEk5IMTOu6Sl-7BkRW5ce97Tl_CNsI4c3H1ddxW8sDbrWI_iLAKbXvQmKD8hME6GJ4GfKtqMTlr8O_BFVdI=w2400)*North Star*&nbsp;
 
