@@ -2,8 +2,7 @@
 ## I will try to post a picture every day during a year
 
 ### Fri 2022.07.15
-![Last Car in your Life]
-(https://lh3.googleusercontent.com/Ni9-dQZ9Uip9cpkdXVxlnGItsDSTYMlSbHQRFNWP9bzdAREPtoq_rRynFKIYBWZOJ3x_9RREtniObq0lfqQp2yCLs03F9cpRzfE4LjDHj8H9QPcRMYHFA8Cwn9mF0swM8qjlKrMLk2E=w2400)*Last Car in your Life*&nbsp;
+![Last Car in your Life](https://lh3.googleusercontent.com/Ni9-dQZ9Uip9cpkdXVxlnGItsDSTYMlSbHQRFNWP9bzdAREPtoq_rRynFKIYBWZOJ3x_9RREtniObq0lfqQp2yCLs03F9cpRzfE4LjDHj8H9QPcRMYHFA8Cwn9mF0swM8qjlKrMLk2E=w2400)*Last Car in your Life*&nbsp;
 
 ### Thu 2022.07.14
 ![Fennel Sunset](https://lh3.googleusercontent.com/ZTF8iW9RuEb1SuaevDmtYPhm5NaTV36HWlteGu3l5VrzJzF2CmlBhTclK1HfO8G_uYZcXN0FrUXA8hzhYvTby52jmDaBRkSTH6QW5gWnl1SkcIYyPLXcnzXNfkqjKBq4AQBcFLZz2H4=w2400)*Fennel Sunset*&nbsp;
