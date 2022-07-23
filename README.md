@@ -1,7 +1,8 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
-
+### Wed 2022.07.20
+![IC vs Diesel](https://lh3.googleusercontent.com/StBuRXnozANifbixko6jKep2n_Ty1mpTa4GXDRhjg5zZq9Zy25rjXpX6i0OylJp61Ue-qRvKIM6M8fR3lA6le_5DvfHw84Z26x_zLaI71LLEJuacDVh18VdIkT2G7tJoKZEv_lKME3s=w2400)*IC vs Diesel*&nbsp;
 ### Tue 2022.07.19
 ![Crow at 40C](https://lh3.googleusercontent.com/Sgmh6VH231K56C_CbWGxzBPFgYdhLqWJZlU06hSJbaFv09rAY6Z6wQZIA1o_7_poMmiTjVseVSpO1jH5Ui4GDd7UmBlLmxQxPlRipeOxFYja95qMjzXDxS54pkSDGN4N-vdXUVIawXY=w2400)*Crow at 40C*&nbsp;
 ### Mon 2022.07.18
