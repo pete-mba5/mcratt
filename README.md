@@ -2,6 +2,8 @@
 ## I will try to post a picture every day during a year
 
 
+### Tue 2022.07.19
+![Crow at 40C](https://lh3.googleusercontent.com/Sgmh6VH231K56C_CbWGxzBPFgYdhLqWJZlU06hSJbaFv09rAY6Z6wQZIA1o_7_poMmiTjVseVSpO1jH5Ui4GDd7UmBlLmxQxPlRipeOxFYja95qMjzXDxS54pkSDGN4N-vdXUVIawXY=w2400)*Crow at 40C*&nbsp;
 ### Mon 2022.07.18
 ![Late Harvest](https://lh3.googleusercontent.com/dZ-94F3ioAa5QncZq6kMFvTM_FkOlRoJDnll4fdZ635W3mD7COjWZnDllOUPEI1tzY52yA46Ogxg1f6RT4SBCVLJsvnjqFrCoxJCvTceKI9ufcP-MkrFEBTfdic5VDZ6zClpT0O188I=w2400)*Late Harvest*&nbsp;
 
