@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+
+### Thu 2022.07.21
+![Vogelbraeu with Boris](https://lh3.googleusercontent.com/5rRtnD-62vWmz0BQVPwvquv5lpHVJQYwVzDNG-eQlV7q8WbfTU4e9H7T1PkbqSBB1zaD78vytgnuiKEaUAXnfrHOBNQMSwiY0iVmpAU3pED-9_THiBc0OdU6CURRbBeHMmjLXl-hxJM=w2400)*Vogelbraeu with Boris*&nbsp;
 ### Wed 2022.07.20
 ![IC vs Diesel](https://lh3.googleusercontent.com/StBuRXnozANifbixko6jKep2n_Ty1mpTa4GXDRhjg5zZq9Zy25rjXpX6i0OylJp61Ue-qRvKIM6M8fR3lA6le_5DvfHw84Z26x_zLaI71LLEJuacDVh18VdIkT2G7tJoKZEv_lKME3s=w2400)*IC vs Diesel*&nbsp;
 ### Tue 2022.07.19
