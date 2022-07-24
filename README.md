@@ -2,7 +2,8 @@
 ## I will try to post a picture every day during a year
 
 
-
+### Sun 2022.07.24
+![Rheinstrandbad](https://lh3.googleusercontent.com/Dlj98UwnPzNN2gu4k-eE7cyLetcTKwgEWXjwDEmy8cuJX8Ll8RNR4PaB9kfkGzrj-SNADvKyNkjdCpG1jEG0-A3wV51Ik1z6tvCVc7u3RatBBmZ1tJZBKoHA8SHyg0eNPUm9JU8ZT2Q=w2400)*Rheinstrandbad*&nbsp;
 ### Sat 2022.07.23 
 ![Failed lemon cake](https://lh3.googleusercontent.com/6AvNGkVoiDDmcvn6zc1ie88QGL87zdrapwravn23A9TT8NF84ZnyV5D90B7CK1omWVnOL9S16mm16NGaZYdXi_Z91DuJeGXXrIXjPN65zePj9aihC1Y3oCV9KRODgFD8aOGr_u2iSBM=w2400)*Failed Lemon Cake*&nbsp;
 ### Fri 2022.07.22
