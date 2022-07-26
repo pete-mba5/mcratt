@@ -1,6 +1,8 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Tue 2022.07.26
+![Nex-6 First Try](https://lh3.googleusercontent.com/elRK8cX3Bt2KOiGK-M_WMPSlSNYlOuAs6X-f5nxy_EC3YHwUtBSGyjd2icJDfz0pKqW5F3SSvNqK_hb1rmNVSfBTYJ7QhE-_aqE38sTJXoJWeSzz3ukPh721i6KpMdTL7c7_6xWgqJ4=w2400)*Nex-6 First Try*&nbsp;
 ### Mon 2022.07.25
 ![Tierwald Lake](https://lh3.googleusercontent.com/hPf618AxtEE8wTYtlQYEgQgCnVMowiPGkzBl62JePQ-UDHGdeD2MZSMzRvDiY1qcTW2auG6AIXYzyjljAWM1IhtjYQgaNc9K2BHo9XUxZGS6emVufljKJ-seL0DrWCaT1bOiika_11s=w2400)*Tierwald Lake*&nbsp;
 ### Sun 2022.07.24
