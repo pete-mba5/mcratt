@@ -1,6 +1,8 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Wed 2022.07.27
+![Spielplatz](https://lh3.googleusercontent.com/IzT8eH4JGSRs5LVY3kaBHxVs878Ct5TDsCfT-Z_Td0fl6xzZy-z834va3ZLEWUrEiKGwHF49S4I58WSWzsRvwluhRRRUDuRNAwz4jmrFJfpODUZz_E2BPzGxLe6kDN_VnuE9Q-CsEnc=w2400)*Spielplatz*&nbsp;
 ### Tue 2022.07.26
 ![Nex-6 First Try](https://lh3.googleusercontent.com/elRK8cX3Bt2KOiGK-M_WMPSlSNYlOuAs6X-f5nxy_EC3YHwUtBSGyjd2icJDfz0pKqW5F3SSvNqK_hb1rmNVSfBTYJ7QhE-_aqE38sTJXoJWeSzz3ukPh721i6KpMdTL7c7_6xWgqJ4=w2400)*Nex-6 First Try*&nbsp;
 ### Mon 2022.07.25
