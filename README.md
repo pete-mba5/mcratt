@@ -1,6 +1,10 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+
+### Thu 2022.07.28
+![Karlsruhe Hbf](https://lh3.googleusercontent.com/qb0euih64-eFclJgaXVNUvac31H6JESsU7H7G7H1AUoSjP8Oty42FWQG-lsXNM8LA00nx29InmcVVU9fbZJTZEJjzoIqVuc4o5-M-7ApwIQxvknpk51v0T1153GGOiPmZxPlcJN4Hjo=w2400*Karlsruhe Hbf*&nbsp;
+
 ### Wed 2022.07.27
 ![Spielplatz](https://lh3.googleusercontent.com/IzT8eH4JGSRs5LVY3kaBHxVs878Ct5TDsCfT-Z_Td0fl6xzZy-z834va3ZLEWUrEiKGwHF49S4I58WSWzsRvwluhRRRUDuRNAwz4jmrFJfpODUZz_E2BPzGxLe6kDN_VnuE9Q-CsEnc=w2400)*Spielplatz*&nbsp;
 ### Tue 2022.07.26
