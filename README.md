@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Sat 2022.07.30
+![Dreschverein Rüppurr](https://lh3.googleusercontent.com/gNpS88-UDLYOWnIj0keBCcukJNonx3oiOO_98zBs9V2iflxIApasu5oIMeCExcV58uKHdIoUUm6D0rlq6EUmVeo7QdLWUaShAD09JBrjgYpk7giCIw2xEGpCKVZtBJrgbnEC56qBpiw=w2400)*Dreschverein Rüppurr*&nbsp;
+
 ### Fri 2022.07.29
 ![Oberwald Tunnel](https://lh3.googleusercontent.com/pwclQPKcCaT1zgi-NpOMEeY5FiTSq0hllg8nMWd2njl5myz5_inwnB_4j4taOzKbu2l7tXp-aReLSmFgRl9sNddF6YyaD7_5gZv3cMzD5-2B8uEJ3o5lXJa9_jT2U1GnNZFg3bGJfs4=w2400)*Oberwald Tunnel*&nbsp;
 
