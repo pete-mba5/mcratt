@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Fri 2022.09.23
+![Empty](https://lh3.googleusercontent.com/K2SMy6II0AbkowcQFPyC-2KCEmQ592dqHi2PowNjBLsubFJcpnRNx9qCkYSmFP0HEGlxuGQWSlFIwmdxL1CCXcuKMV7lmyflCT6oSIO7a4Se1V8tNXpZdEoUOJNAIsfVSGz55NdX-jY=w2400)*Empty*&nbsp;
+
 ### Thu 2022.09.22
 ![Vogel](https://lh3.googleusercontent.com/NzLkPivRZczw5l6CN3KieKq6cnHSsL0JUBiehIR05PEWo4jP7w7_dbV4zVLD6ewpH-6prXhd176GGTvz9lksxVeuNcs2ROM5JzuD9Z-xCYHeIO60_v7FYeyeRkhz-OSCZXsSH6BpQjI=w2400)*Vogel*&nbsp;
 
