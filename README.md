@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Sat 2022.09.24
+![Raining Break](https://lh3.googleusercontent.com/L4eUeL1GHXdtAnFfkaBtVp2ekLuCBgU1FuNIpcy4i-3oEag4W_ZB-VrSOFo6LXZfXuTzh3qY2mZ6DCJr3Kn7ZUY0zTjuLKnOfX0T2iCt67Bc62bk8SQ4Uf8ZEaz0-uEU6TMZUnM1oZ0=w2400)*Raining Break*&nbsp;
+
 ### Fri 2022.09.23
 ![Empty](https://lh3.googleusercontent.com/K2SMy6II0AbkowcQFPyC-2KCEmQ592dqHi2PowNjBLsubFJcpnRNx9qCkYSmFP0HEGlxuGQWSlFIwmdxL1CCXcuKMV7lmyflCT6oSIO7a4Se1V8tNXpZdEoUOJNAIsfVSGz55NdX-jY=w2400)*Empty*&nbsp;
 
