@@ -7,6 +7,9 @@
 ### Thu 2022.09.22
 ![Vogel](https://lh3.googleusercontent.com/NzLkPivRZczw5l6CN3KieKq6cnHSsL0JUBiehIR05PEWo4jP7w7_dbV4zVLD6ewpH-6prXhd176GGTvz9lksxVeuNcs2ROM5JzuD9Z-xCYHeIO60_v7FYeyeRkhz-OSCZXsSH6BpQjI=w2400)*Vogel*&nbsp;
 
+### Wed 2022.09.21 
+![Excellent Rice](https://lh3.googleusercontent.com/IARLinu1zvwX3x9argI6QygJyo6Bxk-21iJJtiMFQDsGTPr36ToQUk4JFGPG3PxsqiUrT4kFjZIWtzLK5j6hoEjogNHO8Tj_6NGdcJdXd8X7yzqNeFf4SXabNCBKXds98CNVZvx9k-8=w2400)*Excellent Rice*&nbsp;
+
 
 ### Tue 2022.09.20
 ![Not Mine](https://lh3.googleusercontent.com/jsTsdWh9_QwbEqboJMbG5TRvfWtPTBAXZagnBeHnRIvFO3Y7AwAb2tdhXF_16xzxRyPyTc2-Lw3KRvXxsIyDFQ9dtPwP_mNsm8TJ90bo9pDxiXfFJjjnEG6GyELePNEpSaqqaeTFtvc=w2400)*Not Mine*&nbsp;
