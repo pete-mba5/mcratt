@@ -10,6 +10,9 @@
 ### Mon 2022.10.03
 ![Zwiebelkuchen](https://lh3.googleusercontent.com/0eGgv54mQMMghsTz_O2Mxyr-4Q6n98ZpXIeRmyLJ2Z-EEEZSp_tYdBk8BJhkmeCdb3YB1wKduZqX5_kIcf-M7Wm246_FnlQf7m3XM5tnStWvsBjqom2aK3_11NBVv_5Xa8N-BBaiNt0=w2400)*Zwiebelkuchen*&nbsp;
 
+### Sun 2022.10.02
+![Happy plants](https://lh3.googleusercontent.com/WneFup8OoV-Ks6BZ0YzJ1YsvwlcvacBWh_7T2q7-Awnc2Fg7ZuG7CCuVaWd3tpwOgFeP7GSRQOm5EH1Bhx8gb9_RT7y1AvPliteELT0OyevqAgdncUos0GHPIBmrmumyy7UcZFRi96k=w2400)*Happy Plants*&nbsp;
+
 ### Sun 2022.09.25
 ![Altes Rathaus](https://lh3.googleusercontent.com/iruPXWYP5dA5Xv4o7MtaGfvMw0oWUTTyVmr2fEGx5sVn3Fpn31YbyOiPxCpON2b8c_id44dvwN9g6WlyJ_KUsGHCinw6Pg3g8VLaQgNAomYtA9xpTUQ7wa8ZKXPljFmY4UG4K46n-K0=w2400)*Altes Rathaus*&nbsp;
 
