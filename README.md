@@ -7,6 +7,9 @@
 ### Tue 2022.10.04
 ![Mushrooms](https://lh3.googleusercontent.com/NufNdIn5110xjlNXpxjZYviULClj8ZIX6CwKUCLJ_C6XxLMhhwq1nrXq1FDXM9sMLYDAQBKQZnPTn8OXb2v1n_cUmsiMkCKCsr51g4CZB8laZGJ6107zP7m9Ho5jgLqRAE7DT-UuWYw=w2400)*Mushrooms*&nbsp;
 
+### Mon 2022.10.03
+![Zwiebelkuchen](https://lh3.googleusercontent.com/0eGgv54mQMMghsTz_O2Mxyr-4Q6n98ZpXIeRmyLJ2Z-EEEZSp_tYdBk8BJhkmeCdb3YB1wKduZqX5_kIcf-M7Wm246_FnlQf7m3XM5tnStWvsBjqom2aK3_11NBVv_5Xa8N-BBaiNt0=w2400)*Zwiebekuchen*&nbsp;
+
 ### Sun 2022.09.25
 ![Altes Rathaus](https://lh3.googleusercontent.com/iruPXWYP5dA5Xv4o7MtaGfvMw0oWUTTyVmr2fEGx5sVn3Fpn31YbyOiPxCpON2b8c_id44dvwN9g6WlyJ_KUsGHCinw6Pg3g8VLaQgNAomYtA9xpTUQ7wa8ZKXPljFmY4UG4K46n-K0=w2400)*Altes Rathaus*&nbsp;
 
