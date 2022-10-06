@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Wed 2022.10.06
+![I like you red](https://lh3.googleusercontent.com/kuGvj-PFEQLMJJAYg_sE8uUe3WmnWJrrN7zNRk4wduHC-HKyjVa2895Ov-T_GtirqK4UOhyQbbxoRYsq6X06PNNQzXMU5sPY1HVz_4dg74J64PdruQ-ZKl-4r0YEKT029mgGh2iCyXo=w2400)*I want you red*&nbsp;
+
 ### Sun 2022.09.25
 ![Altes Rathaus](https://lh3.googleusercontent.com/iruPXWYP5dA5Xv4o7MtaGfvMw0oWUTTyVmr2fEGx5sVn3Fpn31YbyOiPxCpON2b8c_id44dvwN9g6WlyJ_KUsGHCinw6Pg3g8VLaQgNAomYtA9xpTUQ7wa8ZKXPljFmY4UG4K46n-K0=w2400)*Altes Rathaus*&nbsp;
 
