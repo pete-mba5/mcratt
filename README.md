@@ -13,6 +13,9 @@
 ### Sun 2022.10.02
 ![Happy plants](https://lh3.googleusercontent.com/WneFup8OoV-Ks6BZ0YzJ1YsvwlcvacBWh_7T2q7-Awnc2Fg7ZuG7CCuVaWd3tpwOgFeP7GSRQOm5EH1Bhx8gb9_RT7y1AvPliteELT0OyevqAgdncUos0GHPIBmrmumyy7UcZFRi96k=w2400)*Happy Plants*&nbsp;
 
+### MON 2022.10.01
+![Kitchen](https://lh3.googleusercontent.com/Y07WhpO_uKaNSVazR9eOHCiV-YxUmRk_Bp1qR5aioerXHh-LefbS0UT30tl4fASWGFDWU78YsqEPjruQ6e1OyTw7__9AX7dEWdu7Z02RDdq-1_GmJ1Rju_YI69sNV6P8GdiqK44z4EA=w2400)*Kitchen*&nbsp;
+
 ### Sun 2022.09.25
 ![Altes Rathaus](https://lh3.googleusercontent.com/iruPXWYP5dA5Xv4o7MtaGfvMw0oWUTTyVmr2fEGx5sVn3Fpn31YbyOiPxCpON2b8c_id44dvwN9g6WlyJ_KUsGHCinw6Pg3g8VLaQgNAomYtA9xpTUQ7wa8ZKXPljFmY4UG4K46n-K0=w2400)*Altes Rathaus*&nbsp;
 
