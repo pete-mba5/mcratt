@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to post a picture every day during a year
 
+### Fri 2022.10.07
+![Wasserwerkstrassenbrücke](https://lh3.googleusercontent.com/cBlhMf_2OTlhamxAJGkElBGBHqzFvOPkJIhfCCUb7WNk1ErHLHHrOBCFfImSfeOC0lTy1OVuUyYkZCF4Bo2OoM--MWDrV4_ZrjaYCRZc8SbuWFzb6b88DPm5Cmnf6Zk0e7_nualrE5U=w2400)*Wasserwerkstrassenbrücke*&nbsp;
+
 ### Wed 2022.10.05
 ![I like you red](https://lh3.googleusercontent.com/kuGvj-PFEQLMJJAYg_sE8uUe3WmnWJrrN7zNRk4wduHC-HKyjVa2895Ov-T_GtirqK4UOhyQbbxoRYsq6X06PNNQzXMU5sPY1HVz_4dg74J64PdruQ-ZKl-4r0YEKT029mgGh2iCyXo=w2400)*I want you red*&nbsp;
 
