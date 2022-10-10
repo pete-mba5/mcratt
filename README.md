@@ -4,6 +4,9 @@
 ### Sun 2022.10.09
 ![Wutachschlucht](https://lh3.googleusercontent.com/vi9L2F8jxw91qcUBQy5hrXGci0KPR4trBwJfE3khGU2IyedyKXb-j2t-uv7X1WjhCKC7uB6iDlrwzrEqcr1UBwnMQcPMHAZVlSNjl9dO-E5la-XbHh1gXAcM3sCrCOJuNUL_7u9xRL0=w2400)*Wutachschlucht*&nbsp;
 
+### Sat 2022.10.08
+![Brigach, Donaueschingen](https://lh3.googleusercontent.com/3xwwMS4XcMVTvjfPVmaKuD9kBmzDQXIO-3K1qE8lcTu7p0tEfv4sUzm6y0ApkMIeTJxJ8ABVM86EZaze4Mhph_zBVtRZhTw3cwf9oSVHhUcuOf4ewvsfLHg21_bJ_rmtTOaorAoj7eU=w2400)*Brigach, Donaueschingen*&nbsp;
+
 ### Fri 2022.10.07
 ![Wasserwerkstrassenbrücke](https://lh3.googleusercontent.com/cBlhMf_2OTlhamxAJGkElBGBHqzFvOPkJIhfCCUb7WNk1ErHLHHrOBCFfImSfeOC0lTy1OVuUyYkZCF4Bo2OoM--MWDrV4_ZrjaYCRZc8SbuWFzb6b88DPm5Cmnf6Zk0e7_nualrE5U=w2400)*Wasserwerkstrassenbrücke*&nbsp;
 
