@@ -1,6 +1,13 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Tue 2022.10.11
+![Platform 10, Stuttgart Hbf](https://lh3.googleusercontent.com/WRQiX_CNTk15rBzNkmxJ-TkC110Nj5FOy3sNv9_BtnGzV-nwuSGuXmbsmC9i2f-ltfnIwNiWkZZDm7Y-DFw6L7keSvakNmRI7lCm-3q_8NOPF6SHRi7YVoX0Xml76WQ59ExLCPIg2Ow=w2400)*Platform 10, Stuttgart Hbf*&nbsp;
+
+
+### Mon 2022.10.10
+![Radioactivity](https://lh3.googleusercontent.com/cuihs1-luBRLeGXZaTYHgPblA0J2O5CbfD3gkilrT-Llg_Gzod3FC4GwLW5qu-jfTNCfBuP17ClnYclZ6b_nfV7O_CXsozw04kj0jckOK2t9evP7iiLC68MMgQF0tlXL8Ix-s-zSd_4=w2400)*Radioactivity*&nbsp;
+
 ### Sun 2022.10.09
 ![Wutachschlucht](https://lh3.googleusercontent.com/vi9L2F8jxw91qcUBQy5hrXGci0KPR4trBwJfE3khGU2IyedyKXb-j2t-uv7X1WjhCKC7uB6iDlrwzrEqcr1UBwnMQcPMHAZVlSNjl9dO-E5la-XbHh1gXAcM3sCrCOJuNUL_7u9xRL0=w2400)*Wutachschlucht*&nbsp;
 
