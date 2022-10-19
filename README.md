@@ -1,6 +1,10 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+
+### Wed 2022.10.19
+![Sunset in Ettlingen](https://lh3.googleusercontent.com/glTcpjAJ-ldaz_Zc41TQoDqoq_nW8NBhDwC5q-gMtsvZezIi_bBwahwXh-rdyQ4faGbmVDp-l6kMCwCqw46-YsA1nPzRd26VnVjgyD9vIoGW-HOjZgriA_liHiS3DZEYoTbcJQ7n2U0=w2400)*Sunset in Ettlingen*&nbsp;
+
 ### Tue 2022.10.11
 ![Platform 10, Stuttgart Hbf](https://lh3.googleusercontent.com/WRQiX_CNTk15rBzNkmxJ-TkC110Nj5FOy3sNv9_BtnGzV-nwuSGuXmbsmC9i2f-ltfnIwNiWkZZDm7Y-DFw6L7keSvakNmRI7lCm-3q_8NOPF6SHRi7YVoX0Xml76WQ59ExLCPIg2Ow=w2400)*Platform 10, Stuttgart Hbf*&nbsp;
 
