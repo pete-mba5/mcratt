@@ -8,6 +8,9 @@
 ### Tue 2022.10.18
 ![Luther](https://lh3.googleusercontent.com/q10Z7EXdUlKRoAbKYWLdrrLopCFlVEfKGz0HcUQazMkSXnCvCWMh2a_v5F2CDnZUVdRpnUVewsK1RChrwdEeJTnZQNHTebim4EWTCy1eJF6rYDjekRFSiMDY057_gmCPb5RxncbvhgY=w2400)*Luther*&nbsp;
 
+### Mon 2022.10.17
+![Rohrbacher Dawn](https://lh3.googleusercontent.com/v_zFvf9eZegUre-OaNOszzfHpcPhhZXvlcZQli56ED1DDRl-WGxjke_Kyf0t2_9g0dN1ejL1vl05HPKbvwe3n7pOrLerCeanakeQkaWkcEmbsy-vADv61RKItip42UCH-buZSIfJV5s=w2400)*Rohrbacher Dawn*&nbsp;
+
 ### Sun 2022.10.16
 ![Cloudy Sunnday](https://lh3.googleusercontent.com/5ek-7h6WwT4umW6QM30Nic_oMZ7mIzXX9EZe9l85mOO6VQnfPZIeogFwGnmkqnGucprTZGiwl6d0OSsXiFTVQnAOcX0z2ljuW1LTxN80qUy2OPJdcfpPsqRX7cotbprlBtl6NvX88LE=w2400)*Cloudy Sunday*&nbsp;
 
