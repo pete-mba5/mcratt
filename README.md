@@ -8,6 +8,9 @@
 ### Tue 2022.10.18
 ![Luther](https://lh3.googleusercontent.com/q10Z7EXdUlKRoAbKYWLdrrLopCFlVEfKGz0HcUQazMkSXnCvCWMh2a_v5F2CDnZUVdRpnUVewsK1RChrwdEeJTnZQNHTebim4EWTCy1eJF6rYDjekRFSiMDY057_gmCPb5RxncbvhgY=w2400)*Luther*&nbsp;
 
+### Sun 2022.10.16
+![Cloudy Sunnday](https://lh3.googleusercontent.com/5ek-7h6WwT4umW6QM30Nic_oMZ7mIzXX9EZe9l85mOO6VQnfPZIeogFwGnmkqnGucprTZGiwl6d0OSsXiFTVQnAOcX0z2ljuW1LTxN80qUy2OPJdcfpPsqRX7cotbprlBtl6NvX88LE=w2400)*Cloudy Sunday*&nbsp;
+
 ### Sat 2022.10.15
 ![I'm lovin' it](https://lh3.googleusercontent.com/ZRs4b7Bk0b_bIlqpaDjLHSNAY64BSmR_OX0xF4UABXDbiwjv87DZeaJTiB6hGkT6SViVZjwc1lv-Q4bjr8-HuSQ2_UwWWlfkf2AXcNoNHcfJtRaut0kIxrj6OTW6GJpyO--fS2Iyx5E=w2400)*I'm lovin' it*&nbsp;
 
