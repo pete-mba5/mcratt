@@ -2,6 +2,9 @@
 ## I will try to take a picture every day during a year and post it whenever I can
 
 
+### Thu 2022.10.20
+![Rain in Rüppurr](https://lh3.googleusercontent.com/Pu-E-viC0yXWGANqAcK7-7cmRbEfBrrE5x-uxz2VYD5aykJSLEvfxlJFLpqJXxU-UN2an_FZCuWHlBFDL5VWNTHGz2WhsuZXkD-ewzg8mntgWZoyd4e-LvS5IakpgNTsBvJhNle1F1Y=w2400)*Rain in Rüppurr*&nbsp;
+
 ### Wed 2022.10.19
 ![Sunset in Ettlingen](https://lh3.googleusercontent.com/glTcpjAJ-ldaz_Zc41TQoDqoq_nW8NBhDwC5q-gMtsvZezIi_bBwahwXh-rdyQ4faGbmVDp-l6kMCwCqw46-YsA1nPzRd26VnVjgyD9vIoGW-HOjZgriA_liHiS3DZEYoTbcJQ7n2U0=w2400)*Sunset in Ettlingen*&nbsp;
 
