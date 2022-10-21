@@ -1,6 +1,8 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Fri 2022.10.21
+![Evening Fog](https://lh3.googleusercontent.com/CpWpUUCvydmTndRQ46db5jFAZnAvgyJrCcYA-e9Gv_i2MFQQM3lsctOqotUebQ_Tgd4SRKD53BDorQefdmfxethFJE9wExwhoD1JrNogV21wiHSoVvf2LrLHpokylkiKIEHg3B2pml8=w2400)*Evening Fog*&nbsp;
 
 ### Thu 2022.10.20
 ![Rain in Rüppurr](https://lh3.googleusercontent.com/Pu-E-viC0yXWGANqAcK7-7cmRbEfBrrE5x-uxz2VYD5aykJSLEvfxlJFLpqJXxU-UN2an_FZCuWHlBFDL5VWNTHGz2WhsuZXkD-ewzg8mntgWZoyd4e-LvS5IakpgNTsBvJhNle1F1Y=w2400)*Rain in Rüppurr*&nbsp;
