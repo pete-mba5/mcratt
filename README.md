@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Mon 2022.10.24
+![Landau from the Hotel](https://lh3.googleusercontent.com/t1lKE3V3L9Ec0srpt0nxQyyCMPBRHdXFDhULUj0LEZ7cdQcxJxf8tjxh35xhWTBW0DCayysW_OSABgZ4hxEFT8lwroIxtkm4o6vPWljoIT5bUYK7VCC4vXEQm0KAguB7f35r0OeBfmg=w2400)*Landau from the Hotel*&nbsp;
+
 ### Fri 2022.10.21
 ![Evening Fog](https://lh3.googleusercontent.com/CpWpUUCvydmTndRQ46db5jFAZnAvgyJrCcYA-e9Gv_i2MFQQM3lsctOqotUebQ_Tgd4SRKD53BDorQefdmfxethFJE9wExwhoD1JrNogV21wiHSoVvf2LrLHpokylkiKIEHg3B2pml8=w2400)*Evening Fog*&nbsp;
 
