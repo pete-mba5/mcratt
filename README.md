@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Wed 2022.10.26
+![NOT Abandoned](https://lh3.googleusercontent.com/4bL_U6_FKmDU2mPLbmFroA-BjtxSjkIRWfqKN9GYN6UHANLMkLPC3Z5wJXhN4L8JhQ4SijfDQ-pAocbhFoSFyVNJqtkfvST8Hn0rJ5X5Qn9Mn9FS6-A3w-LyfLazQvuoxWqhww1otlU=w2400)*NOT Abandoned*&nbsp;
+
 ### Tue 2022.10.25
 ![Landau Street Art](https://lh3.googleusercontent.com/QNX_oPdpWbyFJ4T31JbdgskCF8N1aJ0R2yBet6Et6weGHmMOKJ1RbQNdxPIC4XZpkHKv8m2mEB8BnK8vrrmhnOIyg14aeugbPoUU0e_frRalQtUnTjTVvC0mVJIoVr0dPCH3TEZOiGw=w2400)*Landau Street Art*&nbsp;
 
