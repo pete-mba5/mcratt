@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Thu 2022.10.27
+![Die Alb](https://lh3.googleusercontent.com/Qv2rtndyYHB1W4n9_YhyKOOoCEfH2FbSiUTuvCVq7CtH4IzSblPZC39F2gjmJeI4klgS6Xuip9cXFSU3XsaOKve4QakrLgp0yithJLZxwjl9AkBrft3wbf66lz2YbURWjLSAjPs6MzA=w2400)*Die Alb*&nbsp;
+
 ### Wed 2022.10.26
 ![NOT Abandoned](https://lh3.googleusercontent.com/4bL_U6_FKmDU2mPLbmFroA-BjtxSjkIRWfqKN9GYN6UHANLMkLPC3Z5wJXhN4L8JhQ4SijfDQ-pAocbhFoSFyVNJqtkfvST8Hn0rJ5X5Qn9Mn9FS6-A3w-LyfLazQvuoxWqhww1otlU=w2400)*NOT Abandoned*&nbsp;
 
