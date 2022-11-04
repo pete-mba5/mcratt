@@ -7,6 +7,9 @@
 ### Thu 2022.11.03
 ![Really?](https://lh3.googleusercontent.com/yZbE4Ll9ukw8Bq2J5q7q3I20pHelHBFtrkVCqteTlR1Wx2DVl2ezQ4uHJD74T0zfYDA1qDXR9VI32EQNo19voBCDGFqcuuBPeCSPyteCSej8exOXWBrnfcIfYMTgt9lEpGp35hOnaRg=w2400)*Really*&nbsp;
 
+### Wed 2022.11.02
+![Mood](https://lh3.googleusercontent.com/K_hlIolrJaeZ7SOKgTiPPkkeKP5SyBmszz31NLLBj6B24LLhtACMl0QpBqhUXwPadtMuaX-ay3za0Q5ukXEaEIYEf4h17qRESoSA_t7a-vrHsvgKvdpkbPAjrGjCew6qeo7ddJeWHoU=w2400)*Mood*&nbsp;
+
 ### Tue 2022.11.01
 ![post-Halloween](https://lh3.googleusercontent.com/3U6RLdmzKhrRJEEnEZh1XK2tS0aQ2EqAWEhQ1-WPwBnicjf11S1AulVnIm75JqhUBonNNzBErBBVUxRx7UEX-WD8AdadmEoNmD7rO0C_SKKQ8UL205aqjVBnupzQdN6boxVbSKlIQEI=w2400)*post-Halloween*&nbsp;
 
