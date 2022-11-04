@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Fri 2022.11.04
+![Rain Clouds](https://lh3.googleusercontent.com/pDP_pPwBwHkI3pFNJGAA6auLX4ReQH8ZPQSZHeou8OpXR2zID1BqyhZtfcveKLZuKexNAabI0TK1O4Dwy1fSt3qdodntfBQQMJ3xmrNw-guFsJmMWbEg318quG7d-rd00qbu9eNeekw=w2400)*Rain Clouds*&nbsp;
+
 ### Tue 2022.11.01
 ![post-Halloween](https://lh3.googleusercontent.com/3U6RLdmzKhrRJEEnEZh1XK2tS0aQ2EqAWEhQ1-WPwBnicjf11S1AulVnIm75JqhUBonNNzBErBBVUxRx7UEX-WD8AdadmEoNmD7rO0C_SKKQ8UL205aqjVBnupzQdN6boxVbSKlIQEI=w2400)*post-Halloween*&nbsp;
 
