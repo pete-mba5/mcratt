@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Sun 2022.11.06
+![Ettlingen from Bismarckturm](https://lh3.googleusercontent.com/67UPdQOGX1Ra9PDONMloIidbV1vaBdVJOSiTgw0gS5dLZNac2oKyGIeW07H5M-wVRrb8B0A6MyILVekL_DM57D0BURFCQFaYe3m-VFVs1eNQrra8p-uCZ3hmprA9EUh6-5nvVaMEee4=w2400)*Ettlingen from Bismarckturm*&nbsp;
+
 ### Sat 2022.11.05
 ![Regio](https://lh3.googleusercontent.com/PKvKmFmIXMfk7olosZ1uh3AbUKsg6BOF0OPiPZ8WNPQDWwiazO3SXeMkNcw9ayplm-ZOwCBjG_vC0SSWiRT6D4d91-t4Qgh2mmbFyqOI7Lk_dDA2iY_egCS1dd3OFbIJrd4JDj742IU=w2400)*Regio*&nbsp;
 
