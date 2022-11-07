@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Mon 2022.11.07
+![KA from Breitscheidstrasse in Ettlingen](https://lh3.googleusercontent.com/HONxqqczCBQU-TZi4jy7_ceHwas_qiK2rTAdtCG0w3_-qmOmTsgMXXpo7u3QbWAW4pCrr7NmvXNmLE8JhF_AwJ8vFrRBrWUzMMuAzg1MD9jyyeHwejdLuaf1TqQRWbmiPJUG84zbrto=w2400)*KA from Breitscheidstrasse in Ettlingen*&nbsp;
+
 ### Sun 2022.11.06
 ![Ettlingen from Bismarckturm](https://lh3.googleusercontent.com/67UPdQOGX1Ra9PDONMloIidbV1vaBdVJOSiTgw0gS5dLZNac2oKyGIeW07H5M-wVRrb8B0A6MyILVekL_DM57D0BURFCQFaYe3m-VFVs1eNQrra8p-uCZ3hmprA9EUh6-5nvVaMEee4=w2400)*Ettlingen from Bismarckturm*&nbsp;
 
