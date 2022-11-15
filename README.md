@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Tue 2022.11.15
+![House](https://lh3.googleusercontent.com/6AbIWSuaxN9aeKZJ00sduVskG9kE4O4LSbOOClJKvtw76-9NU6_i4rDkDeKp8lONWRlP3nFR2Ahnb43pxwOrnVZpgOa9C00yDU2yP2n1MIwL_gdnzbyb-m0bO_yWjuSoZX1VgLJUSNI=w2400)*House*&nbsp;
+
 ### Mon 2022.11.07
 ![KA from Breitscheidstrasse in Ettlingen](https://lh3.googleusercontent.com/HONxqqczCBQU-TZi4jy7_ceHwas_qiK2rTAdtCG0w3_-qmOmTsgMXXpo7u3QbWAW4pCrr7NmvXNmLE8JhF_AwJ8vFrRBrWUzMMuAzg1MD9jyyeHwejdLuaf1TqQRWbmiPJUG84zbrto=w2400)*KA from Breitscheidstrasse in Ettlingen*&nbsp;
 
