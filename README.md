@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Wed 2022.11.16
+![Stuttgart Möhringen](https://lh3.googleusercontent.com/rTy5CkQDflQRUKf1NaKXTro0jtMn4brZtpdJt1hTyVQjCAoPuUEjX8dPYSlwhwyZYT37IB3hDq9jD9vcWr7HL-mrUOD_TdopJ7C30PGlZ3nxmwXu9dJn-rk-1ZMgA2TT8b0HG2ohuWc=w2400)*Stuttgart Möhringen*&nbsp;
+
 ### Tue 2022.11.15
 ![House](https://lh3.googleusercontent.com/6AbIWSuaxN9aeKZJ00sduVskG9kE4O4LSbOOClJKvtw76-9NU6_i4rDkDeKp8lONWRlP3nFR2Ahnb43pxwOrnVZpgOa9C00yDU2yP2n1MIwL_gdnzbyb-m0bO_yWjuSoZX1VgLJUSNI=w2400)*House*&nbsp;
 
