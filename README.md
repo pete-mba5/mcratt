@@ -1,6 +1,10 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+
+### Fri 2022.11.18
+![Rainbow Rüppurr](https://lh3.googleusercontent.com/jMZo9gAlmuItNZeftpJIgj_gbFwFNGvUJeQnF0MM8dXRp4hBNSSXdHpc1icsURvvKgQ3uke-4o-ipDjJgVimSPpLLEZhK0G5PML21fvTezSFpiel6nzaYmA655RvTA86s7aDmzs0=w2400)*Rainbow Rüppurr*&nbsp;
+
 ### Wed 2022.11.16
 ![Stuttgart Möhringen](https://lh3.googleusercontent.com/rTy5CkQDflQRUKf1NaKXTro0jtMn4brZtpdJt1hTyVQjCAoPuUEjX8dPYSlwhwyZYT37IB3hDq9jD9vcWr7HL-mrUOD_TdopJ7C30PGlZ3nxmwXu9dJn-rk-1ZMgA2TT8b0HG2ohuWc=w2400)*Stuttgart Möhringen*&nbsp;
 
