@@ -30,7 +30,7 @@
 ![Rain Clouds](https://lh3.googleusercontent.com/pDP_pPwBwHkI3pFNJGAA6auLX4ReQH8ZPQSZHeou8OpXR2zID1BqyhZtfcveKLZuKexNAabI0TK1O4Dwy1fSt3qdodntfBQQMJ3xmrNw-guFsJmMWbEg318quG7d-rd00qbu9eNeekw=w2400)*Rain Clouds*&nbsp;
 
 ### Thu 2022.11.03
-![Really?](https://lh3.googleusercontent.com/4XHBM9UZM1KRF_-q2M38jwq-9Z7Ae1OLj8XrZ4-pIhkMxc85-YkuOXSTFfS8sf71QqMzEzM0oH29nb88x8DUzaoY6ZGbxEwTUKeVTRIs67mJFhJNKsf8WgJ7MTSy1cQ6XYkwpU-IO4E=w2400)*Really*&nbsp;
+![Really?](https://lh3.googleusercontent.com/4XHBM9UZM1KRF_-q2M38jwq-9Z7Ae1OLj8XrZ4-pIhkMxc85-YkuOXSTFfS8sf71QqMzEzM0oH29nb88x8DUzaoY6ZGbxEwTUKeVTRIs67mJFhJNKsf8WgJ7MTSy1cQ6XYkwpU-IO4E=w2400)*Really?*&nbsp;
 
 ### Wed 2022.11.02
 ![Mood](https://lh3.googleusercontent.com/K_hlIolrJaeZ7SOKgTiPPkkeKP5SyBmszz31NLLBj6B24LLhtACMl0QpBqhUXwPadtMuaX-ay3za0Q5ukXEaEIYEf4h17qRESoSA_t7a-vrHsvgKvdpkbPAjrGjCew6qeo7ddJeWHoU=w2400)*Mood*&nbsp;
