@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Sat 022.11.26
+![GoPro6](https://lh3.googleusercontent.com/x7j04UQULUjLd40Sjtein5fjzmS9xT6mvtCTzNgpO9_xeIfn_1aOWAD_BS6J0UtcxQGl_VDnVswTeuyxIYb1SKkrYuoxXwaueRN-MAQNGiTbD8GKwhUtVqC1TKxY45TkBMtdwHkO=w2400)*GoPro6*&nbsp;
+
 ### Sun 2022.11.20
 ![Hartwald.Run](https://lh3.googleusercontent.com/M5HVt5fa_bipaBuJrnZLHG1-KHKjGN5yY42ArO29Su_Di8Qf0QuIxOsZVt0AziJI2Qz1QAfuY5DMnJQzFP8boPwZ3dpYo1b-ZYMS2cvITzbzY0icKexw5ZFZOFg_kRBB8GXJ-CbC=w2400)*Hartwald Run*&nbsp;
 
