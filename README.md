@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Sat 2022.12.10
+![KA Christkindlmarkt](https://lh3.googleusercontent.com/3K98IHwDVmJSbbEx02H2QmW3Tk6x0gse3MkD9arld4Pn44efOTSQXfbKC3KXglcRBM0XOQBCyQssb25ghZ2JskOv04vhZ8Vf19SOGUXhcmBVEZTCzmxwKS3kVjPlfj5ChBRaJMhp=w2400)*KA Christkindlmarkt*&nbsp;
+
 ### Sun 2022.11.27
 ![Crane](https://lh3.googleusercontent.com/dwWXGylowyAkLtA3TzDX6eBefjiN3QpwwGBqK6KPlsQEYEufqx5cjjjfeVmY1NcxYgHIHarq9A5veHJe-2NuawMjsFv1DujqCair_uWGIpAivhohghrub4U6PorU_aKh1k12cZxB=w2400)*Crane*&nbsp;
 
