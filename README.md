@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Fri 2022.12.16
+![Snow Run](https://lh3.googleusercontent.com/suHwf67Wy95iRhJHKfAsjeJNLFLAPEPCLwiHOZUuLdogY7MIHxLeQ9n_n8uCWUtfxFPd-UiQD-2FLl1_zy9Ea1Y5Gz1SFY5V0v2TRed4hr9K4fBIKGAnYrXybhw7qlPw-uujrzHG=w2400)*Snow Run*&nbsp;
+
 ### Sun 2022.12.11
 ![Weihnachtsbaum in the Forest](https://lh3.googleusercontent.com/jeVjb0mPoriBiRvS7cjNESPvQnWS3825ab1cTPP-EhkRmDZhm0UZCrCr9_4zpFFatjUvnXYrhXxAPG2xx8H62DPA0gjb67PXbs-qozDcKRmdQp7lDnHflnNewqrcRXwW1A_sAlzk=w2400)*Weihnachtsbaum in the Forest*&nbsp;
 
