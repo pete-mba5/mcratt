@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Mon 2022.12.19
+![Frozen Lake Oberwald] (https://lh3.googleusercontent.com/aClAv5JjVjXEw6YbQGTv4oR0DnYMqB7ra0FJJACt-HXRlEb2fY9mqCqmfpmichEyKpTQZE-vqLobRpRtyxbC0s9guv9O4Le-dHX4KIPTLz8Jhk1u1FggHn_kRgGNRNWH_XHCCnxw=w2400)*Frozen Lake Oberwald*&nbsp;
+
 ### Sun 2022.12.18
 ![Snow Run 3](https://lh3.googleusercontent.com/OFSYyJzT59j3rtKfVlmU0UECtYKjXxboxw643i8w8UKkNt5rG7ZzKVwqAVyJfnTGKe1aSoSiGF_RffYndTMZms3FyWDsxI2SG0UunvytCu7yXNvVDZMRJI9B5tdKJERhCCcxWWdi=w2400)*Snow run 3*&nbsp;
 
