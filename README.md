@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Wed 2023.01.07
+![Winter?](https://lh3.googleusercontent.com/hSeD7Sj_0xlLiXarpzLZa-NMDXt-zI5PbnR2A4AFamCAO3g98Mf-UMZbzy81Xiwl4cK2tuPwmM-XFGYVDjZkExajW7ctSCiOIlEn9bhML2TZbZo_e4f2vyTRVRcrXOAXf15_wJBiXw=w2400)*Winter?*&nbsp;
+
 ### Wed 2023.01.03
 ![Burrito](https://lh3.googleusercontent.com/In8O7kP8-7McLVEZFbdtXxbifJ6iyPS79MUEj1oRFZUBH2pfOEIBrStUF93_aG-tPaMBSYGWKGzRGpzSPhFCf7nvND6eFFofDxFBTGAmFx3pR1Hi2NBltnvmhK-XE3Eqj6HhswLyIA=w2400)*Burrito*&nbsp;
 
