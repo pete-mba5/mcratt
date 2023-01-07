@@ -9,6 +9,8 @@
 ### Fri 2022.12.30
 ![Self made](https://lh3.googleusercontent.com/7Vz8c4wee2EQX__ej5ux2r3YuaVNciVRImbNC5UE6E3ObPcpx6cjlfNCEGyS1NF7f76xe0f1saF6Ra5WxjkYt_OyXQn7rw0cRP625zvnMoAlDJHhhgjNyIrTXJslTY7Zc36uiHAIig=w2400)*Self Made*&nbsp;
 
+![Cloudy Christmas](https://lh3.googleusercontent.com/OgdNXs8uWqc_ZIjzNbAgnib0jglZdwYKSuauMC0zPXjklogmQPp1UKgZ2_Lwlxyo81KpiCJuS03wCAUa6AUYQDF0_rJxKexIh2NhZOILxGD10_AIAC0asCOi021dl0bQHJvP2pwWiw=w2400)*Cloudy Christmas*&nbsp;
+
 ### Tue 2022.12.20
 ![Sunset post snow](https://lh3.googleusercontent.com/RsPuFzrJdSKYX4UxXgCGtXKix1S05uImcT1hj6BHKRCw8kFbb5UJV2ry75SErWGsL51B_JW9hF0k-boNpeFupTNbtiCs3eFA5LyYuY3QQfI-TsTZ8PLTygNrfioVVFcRnq-cGZHl=w2400)*Sunset post snow*&nbsp;
 
