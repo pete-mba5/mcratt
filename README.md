@@ -7,6 +7,10 @@
 ### Fri 2023.01.06
 ![Pink Panther](https://lh3.googleusercontent.com/BrIr9vpLDk5NwwnoVF-jLcwfqd5pUJUcLKPEUYF_0zWdeAB87e06Gl15Y8ZM_B0nr1kDp5PwwEhEizCxJ3vgg_-epKtuy2KoQZ0YUKsLCm7D8_oYaWavweDFmCs7GQ44bBeWlZme_w=w2400)*Pink Panther*&nbsp;
 
+
+### Thu 2023.01.05
+![Albbrücke](https://lh3.googleusercontent.com/k3629KnNbnVByTbcdgJCjTfl9j6bPNdSfjoj3gggTfAkKVa5bpvpY7kYc4_dC6l1GdGrYIl4LQF0krndWvXir4gPkrFu9dZIq9n730QIyyM_boyv9Ptj77MJ8qI-FGCckL_kZMrIOQ=w2400)*Albbrücke*&nbsp;
+
 ### Wed 2023.01.03
 ![Burrito](https://lh3.googleusercontent.com/In8O7kP8-7McLVEZFbdtXxbifJ6iyPS79MUEj1oRFZUBH2pfOEIBrStUF93_aG-tPaMBSYGWKGzRGpzSPhFCf7nvND6eFFofDxFBTGAmFx3pR1Hi2NBltnvmhK-XE3Eqj6HhswLyIA=w2400)*Burrito*&nbsp;
 
