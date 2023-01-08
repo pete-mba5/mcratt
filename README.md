@@ -1,6 +1,10 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+
+### Sun 2023.01.08
+![Otter](https://lh3.googleusercontent.com/8Aqp91iRPsXXx8vbxB9WXZGWzjWEz_iUumqRfNygHUwOwwh6OLW5sYijHrPJ_C74nkeeWak5jGT1GWJOXqQaRZaScnpHJknwopLFP_caadpJI8ykLKSvxNUWB3mgtghEoz0qAvv6Wg=w2400)*Otter*&nbsp;
+
 ### Sat 2023.01.07
 ![Winter?](https://lh3.googleusercontent.com/hSeD7Sj_0xlLiXarpzLZa-NMDXt-zI5PbnR2A4AFamCAO3g98Mf-UMZbzy81Xiwl4cK2tuPwmM-XFGYVDjZkExajW7ctSCiOIlEn9bhML2TZbZo_e4f2vyTRVRcrXOAXf15_wJBiXw=w2400)*Winter?*&nbsp;
 
