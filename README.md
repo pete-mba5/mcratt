@@ -1,9 +1,11 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+*** Wed 2023.01.11
+![Ka Hens](https://lh3.googleusercontent.com/xXgh7ZdUBPmfoGwG6VGxl7mpyLInumhBSzcJ0bP2W4koBA-mmo7nJD7pDlXSqQC5zh3BKnuzkY9P62Zq2KOmBtxvIr2EbW8hNH9ufkcgiSmzP3Sv6Vm-P1KuAtRTwG3kqv45dJR9Ug=w2400)*Ka Hens*&nbsp;
 
 *** Tue 2023.01.10
-![Zoo.Bridge](https://lh3.googleusercontent.com/Hs26nPNzs2VyCbYFsbvglpfq-ZTVhaQuvlYmsXxSJiY9k8_iwsAZX_pdwB0WaMkYHSPN_sKm20lJZW89pJby0KM5fUM63pvmsuvAph1YCL1_jkmsKKXCbywbkaKFlDTEXEkQ2_Mg6g=w2400)*Zoo.Bridge*&nbsp;
+![Zoo Bridge](https://lh3.googleusercontent.com/Hs26nPNzs2VyCbYFsbvglpfq-ZTVhaQuvlYmsXxSJiY9k8_iwsAZX_pdwB0WaMkYHSPN_sKm20lJZW89pJby0KM5fUM63pvmsuvAph1YCL1_jkmsKKXCbywbkaKFlDTEXEkQ2_Mg6g=w2400)*Zoo Bridge*&nbsp;
 
 ### Mon 2023.01.09
 ![Schloss](https://lh3.googleusercontent.com/U9IWPsKw51eAmRwIkfC3crD_3rBRrbhf5J19GgN39WCzs0S4WJ9g7iRma-u7_vlNvgtdrsg0rQ_M3UURX8lLb031G3gZiwGzcHrbHmK6qmJiFJquBNdBu9JsP--k60hJmtPCleRvXQ=w2400)*Schloss*&nbsp;
