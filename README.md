@@ -2,6 +2,9 @@
 ## I will try to take a picture every day during a year and post it whenever I can
 
 
+### Thu 2023.01.21
+![Running the Alb](https://lh3.googleusercontent.com/9Heh1VQWSvvcX1RqQ_Gb2H0sr1z8aRHsBGXeK-A2zUOUb7L60qmdiuSvogT21tCCPihdhHEdgXVfsoTw2xEo7iras_rzgOG3sb_NpzHtRkrWbvqBexKPRf7KEbfjz_70icePgGuaSQ=w2400)*Running the Alb*&nbsp;
+
 ### Thu 2023.01.22
 ![Snowing Again](https://lh3.googleusercontent.com/5zViKyxhJchhpvx4IcsZL-kv8fEK1w-J8gFH0ayQ6g_4W_HSlMXb9LaDDj_yR0fatQZsHgwfxTmTZ0hS6BwnaShW-92GHR9_HBLPeqxdz9bwJO_5f66xIdXmTbqoUBRmPG9u_6gjkw=w2400)*Snowing Again*&nbsp;
 
