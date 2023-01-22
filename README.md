@@ -17,6 +17,9 @@
 ### Thu 2023.01.19
 ![Headwind](https://lh3.googleusercontent.com/TCwIZiZUFyPAzP9F3WGnQPF9exRpGdF7vvly34oZNb90G9Byp1wPwTW60n8AbxEO1fx4TwOG6jFYc-PLEtkAKuSs0NiMO-VUQ24eGGPM8gT2QJ6UgXwXdYLqrJlM1tTXbFWta6TCOQ=w2400)*Headwind*&nbsp;
 
+### Wed 2023.01.18
+![Raudy Agil](https://lh3.googleusercontent.com/m_HbEZBTD6CkEORgVCnYtU1dDcB3aON_0MhbigKprcnj9FWNwwZN_2Yxm0zfNNIaGYtZapacqMmtrBgCw1x3NmoQi7swkyH0jv-Wi2M1xeZDgZFqUTmW_piqYELQAMZxbPWprjsshw=w2400)*Raudy Agil*&nbsp;
+
 ### Thu 2023.01.12
 ![Rainy Hagsfeld](https://lh3.googleusercontent.com/jGzsRwqgM-O1C7kUV1KHNPJDTauIaKsSSn2lszwYArxLedN1sv1KnMF3xAAzpawQj_BSV0HZY_OuBArQEephyBhlo6q9Q3MJ4xcDyxpXZyZtqTVOEkTYIL4Vu_KuyYmbgdwAQyOxPg=w2400)*Rainy Hagsfeld*&nbsp;
 
