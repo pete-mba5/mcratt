@@ -3,12 +3,16 @@
 
 
 
-### Thu 2023.01.22
+### Sun 2023.01.22
 ![Snowing Again](https://lh3.googleusercontent.com/5zViKyxhJchhpvx4IcsZL-kv8fEK1w-J8gFH0ayQ6g_4W_HSlMXb9LaDDj_yR0fatQZsHgwfxTmTZ0hS6BwnaShW-92GHR9_HBLPeqxdz9bwJO_5f66xIdXmTbqoUBRmPG9u_6gjkw=w2400)*Snowing Again*&nbsp;
 
 
-### Thu 2023.01.21
+### Sat 2023.01.21
 ![Running the Alb](https://lh3.googleusercontent.com/9Heh1VQWSvvcX1RqQ_Gb2H0sr1z8aRHsBGXeK-A2zUOUb7L60qmdiuSvogT21tCCPihdhHEdgXVfsoTw2xEo7iras_rzgOG3sb_NpzHtRkrWbvqBexKPRf7KEbfjz_70icePgGuaSQ=w2400)*Running the Alb*&nbsp;
+
+
+### Fri 2023.01.20
+![Running Shadow](https://lh3.googleusercontent.com/DlSqkSFQz4AWgVkhZAo44kZwe-oZVR_oU9dUw-BT0sc5xkljs4-X84hLAzQKQDzTeI18XsBLyPZ-vTEopkONZ3RrHv8q8_SBFoBlNpj-iOKyBvvGfzi8jhpUEhOFU5j9FBKkg0Woiw=w2400)*Running Shadow*&nbps;
 
 ### Thu 2023.01.12
 ![Rainy Hagsfeld](https://lh3.googleusercontent.com/jGzsRwqgM-O1C7kUV1KHNPJDTauIaKsSSn2lszwYArxLedN1sv1KnMF3xAAzpawQj_BSV0HZY_OuBArQEephyBhlo6q9Q3MJ4xcDyxpXZyZtqTVOEkTYIL4Vu_KuyYmbgdwAQyOxPg=w2400)*Rainy Hagsfeld*&nbsp;
