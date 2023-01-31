@@ -71,9 +71,7 @@
 
 
 ### Fri 2023.01.01
-![Sunset](
-### Fri 2022.12.30
-![Self made](https://lh3.googleusercontent.com/7Vz8c4wee2EQX__ej5ux2r3YuaVNciVRImbNC5UE6E3ObPcpx6cjlfNCEGyS1NF7f76xe0f1saF6Ra5WxjkYt_OyXQn7rw0cRP625zvnMoAlDJHhhgjNyIrTXJslTY7Zc36uiHAIig=w2400)*Self Made*&nbsp;)*Sunset*&nbsp;
+![Sunset](https://lh3.googleusercontent.com/ksswFuI9x7jqUzTfJwfJ0_29QcdIX7FQayikyKDlCx9aDFh4T0AA5EzAmvLV9Yn4LuoAEhVMc9KXso5SEml8MZIs0WWDnRwdloxASVwGmFkKOi4GXSu9B3LZx3rebabjhsZJ0-bqWA=w2400)*Sunset*&nbsp;
 
 ### Fri 2022.12.30
 ![Self made](https://lh3.googleusercontent.com/7Vz8c4wee2EQX__ej5ux2r3YuaVNciVRImbNC5UE6E3ObPcpx6cjlfNCEGyS1NF7f76xe0f1saF6Ra5WxjkYt_OyXQn7rw0cRP625zvnMoAlDJHhhgjNyIrTXJslTY7Zc36uiHAIig=w2400)*Self Made*&nbsp;
