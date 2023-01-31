@@ -1,7 +1,8 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
-
+### Mon 2023.01.30
+![We are the Robots](https://lh3.googleusercontent.com/Zi6plnKytUTIPPBC5kM5bS9FSwXpHGaxZxB_EI2XemXUXSpv1HKuluCf-ycs8ZE53aV-i7-TJWV9GQz-k04lsWe1neVqEbS7xmVj7mrx1DUFOZ1mSqf1XA3-c7YIHZlkIvjaAImRDQ=w2400)*We are the Robots*&nbsp;
 
 ### Sun 2023.01.22
 ![Snowing Again](https://lh3.googleusercontent.com/5zViKyxhJchhpvx4IcsZL-kv8fEK1w-J8gFH0ayQ6g_4W_HSlMXb9LaDDj_yR0fatQZsHgwfxTmTZ0hS6BwnaShW-92GHR9_HBLPeqxdz9bwJO_5f66xIdXmTbqoUBRmPG9u_6gjkw=w2400)*Snowing Again*&nbsp;
