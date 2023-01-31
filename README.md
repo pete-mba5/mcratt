@@ -1,6 +1,10 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+
+### Tue 2023.01.31
+![We are the Robots](https://lh3.googleusercontent.com/L_aiBqWWQBNQmMH9p8JN4vrjXip4tjxmUK34Z2qjvr9G-3YeZ_Ze0REUfWc4gO_uCZMiPS1yV9H5cv1KZHqgkRM1rV9I37AP0P-3Knp-xKZe6AsHnOlFa2f0cdgxb0IeT14ThZZkvA=w2400)*Robots Second Edition*&nbsp;
+
 ### Mon 2023.01.30
 ![We are the Robots](https://lh3.googleusercontent.com/Zi6plnKytUTIPPBC5kM5bS9FSwXpHGaxZxB_EI2XemXUXSpv1HKuluCf-ycs8ZE53aV-i7-TJWV9GQz-k04lsWe1neVqEbS7xmVj7mrx1DUFOZ1mSqf1XA3-c7YIHZlkIvjaAImRDQ=w2400)*We are the Robots*&nbsp;
 
