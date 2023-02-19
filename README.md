@@ -2,6 +2,9 @@
 ## I will try to take a picture every day during a year and post it whenever I can
 
 
+### Tue 2023.02.18
+![We are the Robots...](https://lh3.googleusercontent.com/0y8mcDdRyKTbkyhhlgV9SXI00-r34Y080d22WAheoWSiVwYNy8Bk_p7_6zhZlEKfvpHJAUuxBzGtRcqcmhfiZ3RHi4F13if6s6BI3C3KqQJ0qSjYSJfHep8EniJyptir5RM5t6mCGQ=w2400)*We are the Robots...*&nbsp;
+
 ### Tue 2023.01.31
 ![We are the Robots](https://lh3.googleusercontent.com/L_aiBqWWQBNQmMH9p8JN4vrjXip4tjxmUK34Z2qjvr9G-3YeZ_Ze0REUfWc4gO_uCZMiPS1yV9H5cv1KZHqgkRM1rV9I37AP0P-3Knp-xKZe6AsHnOlFa2f0cdgxb0IeT14ThZZkvA=w2400)*Robots Second Edition*&nbsp;
 
