@@ -2,6 +2,10 @@
 ## I will try to take a picture every day during a year and post it whenever I can
 
 
+
+### Sun 2023.02.19
+![RADstinger by Kevin Hall](https://lh3.googleusercontent.com/evgHjobq7xCLxzNIYdsTVOgRxAZHOM9JMuUjTobkQ7l0jzG65T7ZiWhggsPi4HDohmqPuVtfz-3Jaf69FD26x3-2IOqdLMBLxf8JRnRQDRnuebYwjWtLrIYCkNvF33sgUt0RSfTqog=w2400)*RADstinger by Kevin Hall*&nbsp;
+
 ### Sat 2023.02.18
 ![We are the Robots...](https://lh3.googleusercontent.com/0y8mcDdRyKTbkyhhlgV9SXI00-r34Y080d22WAheoWSiVwYNy8Bk_p7_6zhZlEKfvpHJAUuxBzGtRcqcmhfiZ3RHi4F13if6s6BI3C3KqQJ0qSjYSJfHep8EniJyptir5RM5t6mCGQ=w2400)*We are the Robots...*&nbsp;
 
