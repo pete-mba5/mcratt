@@ -5,6 +5,10 @@
 ![Flyte by Kevin Hall](https://lh3.googleusercontent.com/FaT_dkr3XLekGEso8DC-sO1oPDuCRUuk5yEb53gL0ZZwzYTWpeRp2Ia22cT3xekWQLopdR8jbT-HLCJlLdqn9PVcGKvujh7hZxujdCKM-wpWtTiYsH-Y1rWccCYioYKkeBBD8HoL0g=w2400)*Flyte by Kevin Hall*&nbsp;
 
 
+### Fri 2023.02.24
+![Auto 4 by Kevin Hall](https://lh3.googleusercontent.com/jPvKV-i1igzog_WYAK-YwKqBqL73rGfQT42AgWry_xjUdxq90sIM7-WdxYvvqRb_GtxHoYIWr_GwEY4HmJw2iaX0INQZE7DJSUU9pymM-v0hJchy_qRD2GwJrltfgHqlfvokiVvWqg=w2400)*Auto 4 by Kevin Hall*&nbsp;
+
+
 
 ### Mon 2023.02.20
 ![Wheels by Kevin Hall](https://lh3.googleusercontent.com/IIg_yZkM2CqwNfHuDXmas43yVua9yJvWO5q2RW70aBTM9ryBxoKbCRbaOz1iXLjvm76m1Oh7DljacYyR-FjufYAvhwsqyMKtWKA4GhUIG4mE47_jJo5WYm5JVty5-t1rRzHlTCtcQQ=w2400)*Wheels by Kevin Hall*&nbsp;
