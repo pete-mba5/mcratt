@@ -1,6 +1,9 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Sat 2023.02.25
+![Flyte by Kevin Hall](https://lh3.googleusercontent.com/FaT_dkr3XLekGEso8DC-sO1oPDuCRUuk5yEb53gL0ZZwzYTWpeRp2Ia22cT3xekWQLopdR8jbT-HLCJlLdqn9PVcGKvujh7hZxujdCKM-wpWtTiYsH-Y1rWccCYioYKkeBBD8HoL0g=w2400)*Flyte by Kevin Hall*&nbsp;
+
 
 
 ### Mon 2023.02.20
