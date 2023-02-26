@@ -1,6 +1,10 @@
 # This is just an experiment
 ## I will try to take a picture every day during a year and post it whenever I can
 
+### Sun 2023.02.26
+![Romudroid by Kevin Hall](https://lh3.googleusercontent.com/ARTjNnR3unv_peGQlujQQTTjqkR3bbz-eE-Gc5W9sNNG0ZaKv-Z7eLpSw7yBfUKPZelzxvqf4yEZVeapZQpDY5ST_CHajeE6EWeYKkUXF_yBbYUwIjpmPQyfSIOrBhZ0t2wYKlVAvw=w2400)*Romudroid by Kevin Hall*&nbsp;
+
+
 ### Sat 2023.02.25
 ![Flyte by Kevin Hall](https://lh3.googleusercontent.com/FaT_dkr3XLekGEso8DC-sO1oPDuCRUuk5yEb53gL0ZZwzYTWpeRp2Ia22cT3xekWQLopdR8jbT-HLCJlLdqn9PVcGKvujh7hZxujdCKM-wpWtTiYsH-Y1rWccCYioYKkeBBD8HoL0g=w2400)*Flyte by Kevin Hall*&nbsp;
 
