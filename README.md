@@ -2,6 +2,10 @@
 ## I will try to take a picture every day during a year and post it whenever I can
 
 ### Mon 2023.02.27
+![Star Wars?](https://lh3.googleusercontent.com/4yXUtU0PF-yTou0VAH9w5usht2SLjKHhvXRyo4dDjSXsJ9-2tBLAu8k-8t4rphEbwq2AIQh_W85iO-_hHenO4ZK5w9ztRyVQSMD6-JW7ZpwbdmEXNbB0V4L654e2ouud1wbhGTIG3Q=w2400)*Star Wars?*&nbsp;
+
+
+### Mon 2023.02.27
 ![Time-O by Kevin Hall](https://lh3.googleusercontent.com/wZplcX_3uwGwLvz_qqMDeYNruC1FL5o9i_F53Um7M-diOOw2QGW-tp1TLxbnnDVoaoYJTxb7UXjRO1sjhJftDamdOUVSUD_vBEqSFkLf6sPh4ryGu86iKrRkU6szULbKLXrTpDVxZg=w2400)*Time-O by Kevin Hall*&nbsp;
 
 
