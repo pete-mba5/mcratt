@@ -2,6 +2,9 @@
 ## I will try to take a picture every day during a year and post it whenever I can
 
 
+### Sun 2023.03.05
+![Personal Best 3:08:27](https://lh3.googleusercontent.com/fGsTgSP4bLj7TSzrQF3qCSuRDq3Upwqv9amKCoR1j1x2yW57DM4EglDNsfTV9DhoUdMdroR-57dbO3uXq2IFu2da90IHcOD3B_CkvUYLK5Z-7HHa4nQthktcDWR-dK3T240FUUeB6Q=w2400)*Personal Best 3:08:27*&nbsp;
+
 ### Sat 2023.03.04
 ![Dataroid by Kevin Hall](https://lh3.googleusercontent.com/8VNydQ-tHEVhxrz8q0sna7LE7f3gVjWo9WODOjqs3E6C1whYvwvXeOQAknXFVoPXwePxWeCunB-zSHDP6lhU7sjrdtqP6PfyPv94xsbG2HU55neQrKcF9D9i-6LmgsGtWPZaJ1jJYg=w2400)*Dataroid by Kevin Hall*&nbsp;
 
