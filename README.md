@@ -2,6 +2,10 @@
 ## I will try to take a picture every day during a year and post it whenever I can
 
 
+
+### Wed 2023.03.08
+![Dis K by Kevin Hall](https://lh3.googleusercontent.com/yOqVEBSm_g_qXthnAvsLkUM4XV941pxTJ_v7SuQNwNyOdJQuIiquigVixRAMJN5L2EYUCFbG1uYUinQ9PbgmNa2T93ofmkHpx-OIObiKCbRzqzugakSsD4vAJpxRmD-ZbnFsos9exg=w2400)*Dis K by Kevin Hall*&nbsp;
+
 ### Tue 2023.03.07
 ![Microcontroller by Kevin Hall](https://lh3.googleusercontent.com/NFHd_zTOKumr1utqGzLV07K3Vh4Bb63AN6KHn6QB2IHc7L4TmL4sTVyg42xHN0vbyQf1LHYwTXuhrQv3uj5mcAmRlG4MZNoxNSfEZZ5yvHXe6WSWt91cmrnELbF_0MoyHv-9_6OJaA=w2400)*Microcontroller by Kevin Hall*&nbsp;
 
