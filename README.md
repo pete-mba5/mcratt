@@ -2,6 +2,9 @@
 ## I will try to take a picture every day during a year and post it whenever I can
 
 
+### Fri 2023.03.10
+![Deli Burgers](https://lh3.googleusercontent.com/riF6Z47DogjlCnWRCeNjBicgSVt2biuFGGDU11cNvISLFazGPyEWM-HkCo0yMKWYRmbnq0hvhnu1THlsZo-OGP8VXc6ERtgTTOYwn20W7ffsh3anaK1csOA8E0ofz9DJ3sIA4VIgPA=w2400)*Deli Burgers*&nbsp;
+
 
 ### Wed 2023.03.08
 ![Dis K by Kevin Hall](https://lh3.googleusercontent.com/yOqVEBSm_g_qXthnAvsLkUM4XV941pxTJ_v7SuQNwNyOdJQuIiquigVixRAMJN5L2EYUCFbG1uYUinQ9PbgmNa2T93ofmkHpx-OIObiKCbRzqzugakSsD4vAJpxRmD-ZbnFsos9exg=w2400)*Dis K by Kevin Hall*&nbsp;
